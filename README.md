@@ -4,8 +4,9 @@ I'm practising in corporate law. I reprsent in variety of cases before Distrcit 
 I've an edge of reprsenting the matters before other authorities as well such as National Company Law Tribunal, Regional IDrecyor, Minitstry of Corporate Affairs and Official Liquidator. 
 I also have dealt with cases before Competition Comission of India. With the given range of matters so far dealt I can assure you to bring a solution for your corporate law related matters starting from setting up of business till its liquidation and in between to take care of compliances as may be applicable in the Country.
 Following are my prominent clients 
-- Maruti
+- Maruti      https://www.marutisuzuki.com/
 - DCM Sriram 
 - Relaince
-- Tata
-- BHEL
+- Tata         https://www.tatamotors.com/
+- BHEL         https://www.bhel.com
+
